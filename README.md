@@ -1,9 +1,5 @@
-![](https://files.catbox.moe/qxedpq.jpg)
-
-![](https://files.catbox.moe/yxoxu4.webp)
-
-
-![](https://files.catbox.moe/hb3rec.webp)
-
-
-![](https://files.catbox.moe/ca6f6a.jpg)
+![](https://files.catbox.moe/om4pbx.png)
+![](https://files.catbox.moe/s7m68h.gif)
+⠀⠀⠀ ⠀⠀[prns.cc](https://pronouns.cc/Kuroamia)⠀⠀⠀⠀ 𓍯𓂃𓏧♡⠀ ⠀  [atabook](https://sun-day.atabook.org/)⠀⠀⠀⠀ 𓍯𓂃𓏧♡⠀ ⠀  [sys code](https://rentry.co/combosymptom)⠀⠀⠀⠀ 𓍯𓂃𓏧♡⠀ ⠀  ⠀⠀ ⠀  [RealGithub](https://github.com/GYARU-EIJIRO)⠀⠀⠀⠀ 𓍯𓂃𓏧♡⠀ ⠀  ⠀⠀ ⠀  [C+HNotes](https://rentry.co/cplush)
+![](https://files.catbox.moe/jqw4le.jpg)
+![](https://files.catbox.moe/eepufo.png)
